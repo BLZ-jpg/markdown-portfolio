@@ -1,1 +1,1 @@
-![image of arnold flexing] (https://cdn.quotesgram.com/img/17/36/1365031180-Workout_Motivational_Pictures__3_.jpg)
+![image of weights] (https://cdn.quotesgram.com/img/20/2/1530502001-tumblr_m6t6s843Yx1rwsk9ao1_500.jpg)
