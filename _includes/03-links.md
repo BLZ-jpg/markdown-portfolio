@@ -1,1 +1,1 @@
-[My GitHub] (https://github.com/BLZ-jpg)
+[My GitHub](https://github.com/BLZ-jpg)
