@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am a **_cool asf_** guy and I'm currently watching *Impeachment* or something like that on the TV and my beautiful **wife** and **dog** are here *chillin asf* with me.  Thanks.
