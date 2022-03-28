@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Candy
+* Core reflective tendencies
+* Tornado applications
+* False flag magnet bearing flange
+* Bugaloo
